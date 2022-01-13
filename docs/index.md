@@ -31,3 +31,5 @@
 [15] Vgl. Deutsches Zentrum für Hochschul- und Wissenschaftsforschung, Beteiligung an Hochschulbildung. Chancen(un)gleichheit in Deutschland., Kracke, Nancy; Buck, Daniel; Middendorff, Elke, Hannover (2018), 8 S., https://www.fachportal-paedagogik.de/literatur/vollanzeige.html?FId=1145632 (11.01.2022)
 
 [16] Vgl. Deutsches Zentrum für Hochschul- und Wissenschaftsforschung, Beteiligung an Hochschulbildung. Chancen(un)gleichheit in Deutschland., Kracke, Nancy; Buck, Daniel; Middendorff, Elke, Hannover (2018), 8 S., https://www.fachportal-paedagogik.de/literatur/vollanzeige.html?FId=1145632 (11.01.2022)
+
+[17] Vgl. Prof. Dr. Dr. h.c mult. Hans-Werner Sinn, Präsident des ifo Instituts 1999-2016, Soziale Marktwirtschaft: Erfolgsmodell vor neuen Herausforderungen, https://www.youtube.com/watch?v=WqERkwvgxIk (12.01.2022)
